@@ -3,7 +3,7 @@ Hi, I’m @Kushnirenko-IrynaQA41
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on any projects 😂
 - 📫 How to reach me: Iradzerj@gmail.com
-- 😄 Pronouns: ✅
+- 😄 Pronouns: N/A
 - ⚡ Fun fact: I used to work in the banking sector, now I'm studying IT
 
 
